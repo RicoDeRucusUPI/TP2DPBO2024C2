@@ -1,4 +1,4 @@
-# LP5DPBO2024
+# TP2DPBO2024
 
 Saya Rico Valentino 1909263 mengerjakan (TP2) dalam mata kuliah DPBO untuk keberkahanNya maka saya tidak melakukan kecurangan seperti yang telah dispesifikasikan.
 
